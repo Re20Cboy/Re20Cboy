@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Re20Cboy
+- 👀 interested in blockchain/cryptocurrency/quantum computing
+- 🌱 currently learning NLP/CV/...
+- 📫 How to reach me: Email:xxxx_ld@163.com
